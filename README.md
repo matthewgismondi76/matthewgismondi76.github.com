@@ -36,9 +36,11 @@ Cum superiorem habes, dele. Cum sub tuo limine cadunt mutant, poenitentiam agunt
 
 And underneat [\[sic\]](https://www.cakewrecks.com) that,
 
+I can't remember what I was going to put underneat that.
+
 ***
 
-But the other things (ANDANOTHERTHING!! as Chad would say) is that when you are driven to the point of having this much to say, and then while you're typing it out on your screen to get it out of your head and feel like you have been heard at least somewhere so that if you die there will be some record of things in case Heaven really is confused about who you are, someone comes along and makes it seem like it is a response to what you've been bitching about for a long time but then they get close and see that right then you have started bitching about whoever they represent, and you 
+But the other thing (ANDANOTHERTHING!! as Chad would say) is that when you are driven to the point of having this much to say, and then while you're typing it out on your screen to get it out of your head and feel like you have been heard at least somewhere so that if you die there will be some record of things in case Heaven really is confused about who you are, someone comes along and makes it seem like it is a response to what you've been bitching about for a long time but then they get close and see that right then you have started bitching about whoever they represent, and you 
 then feel like they are responding with an offended reaction and they turn around and walk away as if to say, "Fine. If you're going to be all turncoat like that then no help for you. Go get it from them," then it's also another thing that is very horribly misunderstood.
 
 I am not wishy washy. I am human. I do not know anything about government intelligence or the supernatural realm or how the cartel does business. I don't want to know at this point. I have done miraculous things, supposedly, that were so convincing that people thought I myself knew all about those things and then I became a security risk and had to be contained by all of the above and more I did not even mention. My allegiance is with no one but Jesus Christ, and that has always been the same. Beyond that anything I say or think about is just a whole lot of speculation because my mind is unable to process it and just goes around in circles trying to  make sense out of it all. It does that because
